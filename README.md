@@ -5,6 +5,3 @@
 If your very `Kepo` about my repo then here's the think:
 - Im a :shit: there's nothing intresting about me :sob:
 - also im looking for a girl who like gundam 🙈
-
-### This stats its `Pembodohan publik` :shipit:
-> ![Maulnad's github stats](https://github-readme-stats.vercel.app/api?username=maulanaadil&count_private=true&show_icons=true&theme=dark)
