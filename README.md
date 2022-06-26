@@ -4,5 +4,5 @@
 
 If your very *`Kepo`* about my repo then here's the thing:
 
-- Im a :shit: still *`minder`* 4 looking anyone porto huhu <img src="https://c.tenor.com/URdza1XjpAMAAAAC/hyeri-tears.gif" alt="sad-bro" data-canonical-src="https://c.tenor.com/URdza1XjpAMAAAAC/hyeri-tears.gif" width="25" height="25" />
+- Im a :shit: the person is *`minderan`* <img src="https://c.tenor.com/URdza1XjpAMAAAAC/hyeri-tears.gif" alt="sad-bro" data-canonical-src="https://c.tenor.com/URdza1XjpAMAAAAC/hyeri-tears.gif" width="25" height="25" />
 - also im looking for a girl who like gundam <img src="https://thumbs.gfycat.com/HighFrailIslandwhistler-max-1mb.gif" alt="fyi-bro" data-canonical-src="https://thumbs.gfycat.com/HighFrailIslandwhistler-max-1mb.gif" width="25" height="25" />
